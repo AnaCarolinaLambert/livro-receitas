@@ -14,5 +14,3 @@
 
 Picar o frango em cubos. Temperar. Refogar a cebola em uma panela, acrescentar o frango,. 
 
-
-
