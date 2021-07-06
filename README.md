@@ -2,5 +2,5 @@
 
 Olá!Bem vindo ao livro de receitas :wave:
 
-- Estrogonofe de Frango. 
-- 
+- Strogonoff de frango
+- Caldo verde
